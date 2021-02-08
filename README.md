@@ -1,0 +1,1 @@
+# Dell-Optiplex-macOS-bigsur-i58400-UHD630-
